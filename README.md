@@ -3,7 +3,7 @@
   
 <img width="1280" height="217" alt="Image" src="https://github.com/user-attachments/assets/2b4e5c35-2d6b-472b-85ac-ff88861c7838" />
 
-# all this from @HEALTH-LEDGER / @Lucien-Valcrest 
+# I was asked to edit this by @HEALTH-LEDGER / @Lucien-Valcrest 
 
 . ______________________________________________________________________________________________.
 
